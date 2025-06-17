@@ -31,6 +31,6 @@
 
 ## 📫 Connect With Me
 - [LinkedIn](https://www.linkedin.com/in/hariharan-a-aa0b60141)
-- ✉️ hariharan.dev09@gmail.com
+- ✉️ hariharana0110@gmail.com
 
 🌱 “Stay curious. Keep building. Never stop growing.”
